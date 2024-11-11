@@ -5,7 +5,7 @@
 - 📫 How to reach me https://www.facebook.com/lew.lew29
 - 😄 Pronouns: 😛
 - ⚡ Fun fact: Want to dunk at 5'10 ( aim to have 40in vert )
-- ️🖤 Idol: as you can see 😅
+- ️🖤 Idol: As you can see 🦁
 
 <!---
 CaoD05/CaoD05 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
